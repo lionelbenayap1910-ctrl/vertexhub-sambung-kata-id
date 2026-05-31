@@ -1,0 +1,1 @@
+# vertexhub-sambung-kata-id
